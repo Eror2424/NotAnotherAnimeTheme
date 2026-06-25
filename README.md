@@ -1,0 +1,2 @@
+# NotAnotherAnimeTheme
+Bterr Discord theme
